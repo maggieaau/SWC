@@ -1,3 +1,3 @@
 #Writing some stuff.
 
-About poems.
+About poems. Lots to learn about.
